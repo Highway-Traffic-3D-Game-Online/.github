@@ -2,6 +2,8 @@
 
 **Highway Traffic** is an **insanely fast-paced racing game** that puts your reflexes and driving skills to the test on endless, chaotic roads. Whether you're a **casual player** looking for thrill or a **hardcore racer** chasing high scores, this **unblocked traffic simulator** offers everything you need for an **epic driving experience**.
 
+## <a href="https://1kb.link/A6QiMf">👉 Play Highway Traffic Unblocked NOW 👈</a>
+
 ### 🔥 Why Highway Traffic is a Must-Play
 
 ✅ **Extreme Speed & Turbo Action**
